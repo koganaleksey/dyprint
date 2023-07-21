@@ -1,1 +1,0 @@
-Project By Alexey Kogan
